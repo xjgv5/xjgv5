@@ -1,5 +1,5 @@
 # 💫 About Me:
-Looking for a job<br>Java enthusiastic<br>Teaching and learning are my hobbies (:
+Looking for a job<br>Teaching and learning are my hobbies (:
 
 
 ## 🌐 Socials:
